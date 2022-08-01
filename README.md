@@ -1,0 +1,2 @@
+# latihanpbamali2
+latihan
